@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JelliousSea3
+- 👀 I’m interested in gaming and coding
+- 🌱 I’m currently learning coding
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: ✨CHESE✨
